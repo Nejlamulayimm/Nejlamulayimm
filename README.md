@@ -2,7 +2,7 @@
 - 👀 I’m interested in software and web design
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on 
-- 📫 You can reach me via this e-mail address.
+- 📫 You can reach me via this e-mail address. (nejla.mulayim00@gmail.com)
 - 😄 
 - ⚡ 
 
